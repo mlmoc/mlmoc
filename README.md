@@ -2,7 +2,7 @@
 ·͙*̩̩͙˚̩̥̩̥*̩̩̥͙　✩　*̩̩̥͙˚̩̥̩̥*̩̩͙‧͙
   </p>
 
-<p align="center"> <img width="484" height="372" alt="Untitled2936_20260110161314" src="https://github.com/user-attachments/assets/ed07b4f0-d106-460f-9da5-3900b6fd552b" />
+<p align="center"> <img width="441" height="339" alt="Untitled2936_20260116185057" src="https://github.com/user-attachments/assets/4ecc5cab-4497-4e39-9fa9-8ae2198170b7"
 </p>
 
 
@@ -16,9 +16,5 @@
 ︶꒦꒷♡꒷꒦︶
   </p>
 
-<p align="center"> <img width="470" height="287" alt="Untitled2938_20260110164013" src="https://github.com/user-attachments/assets/4099449e-1ed5-46ba-b540-d14d399f017c" />
-</p>
-
-<p align="center">
-ᴸᵒᵛᵉˡʸ ˢʸˡᵘˢ ᵐᵃⁱⁿ 💖
+<p align="center"> <img width="870" height="435" alt="Untitled2960_20260116191924" src="https://github.com/user-attachments/assets/70856f8a-d133-43df-8b84-df965207a12d" />
 </p>
